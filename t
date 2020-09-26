@@ -1,1 +1,1 @@
-bu ikinci versiyadi
+bu klonlanmis versiyadi
