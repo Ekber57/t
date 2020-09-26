@@ -1,1 +1,1 @@
-bu ilk versiyadi
+bu ilk versiyadi 1
