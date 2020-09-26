@@ -1,1 +1,1 @@
-bu ilk versiyadi
+bu ikinci versiyadi
